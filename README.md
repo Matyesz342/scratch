@@ -1,0 +1,2 @@
+# scratch
+Beadandó scratch munka
